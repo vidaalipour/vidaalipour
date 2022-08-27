@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @vidaalipour
+- 👀 Iam robotics engineering🦾
